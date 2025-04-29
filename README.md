@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nachanakashv@gmail.com**
 
-- Me **Ambitious, Enthusiast**
+- **Ambitious, Enthusiast**
 
 <h3 align="left">Connect with me:</h3>
 
